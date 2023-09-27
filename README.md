@@ -1,3 +1,3 @@
 # literacy
 
-take
+hiroya tennsai
